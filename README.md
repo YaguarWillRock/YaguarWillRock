@@ -22,7 +22,7 @@ I’m open to collaborating on projects that:
 
 ## 📫 How to Reach Me
 If you're interested in collaborating or just want to chat about technology, art, or sports, feel free to reach out!
-- 💌 You can direct message me here on GitHub or reach out through my social media (to be added).
+- 💌 You can direct message me here on GitHub or reach out through my social media (IG: jesusdariofr).
 
 <!---
 YaguarWillRock/YaguarWillRock is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
